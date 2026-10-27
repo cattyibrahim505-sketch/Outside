@@ -97,4 +97,4 @@ Less scrolling. More living.
 
 Made with 💚 for real-world connections.
 
-© 2026 OUTSIDE. All rights reserved.
+OUTSIDE © 2026. Developed with AI assistance.
